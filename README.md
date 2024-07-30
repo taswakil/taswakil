@@ -9,6 +9,4 @@
 
 <br>
 
-Check out [My Blog](https://sidequests.onrender.com/Blog/2024/taswakil/Readme/)!
-
-
+Check out [My Blog](https://sidequests.onrender.com/Blog/2024/taswakil/Readme/) to see my journey in learning full stack web dev!
