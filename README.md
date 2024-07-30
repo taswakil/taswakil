@@ -1,16 +1,16 @@
-## Hi there 👋
+## .⋆❀:° Hi I'm Tasneem:) °:❀⋆.⁺‧
 
-<!--
-**taswakil/taswakil** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## 𓍢ִ໋🫧֒✧⋆˚♡ Hi I'm Tasneem ♡˚⋆֒✧🫧𓍢ִ໋
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img align="center" width="60" alt="GIF" src="https://www.icegif.com/wp-content/uploads/2022/10/icegif-1419.gif" />
+
+<br>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=500&color=Ffc0cb&width=500&lines=I'm+an+aspiring+Software+Engineer;+I'm+a+Nature+Lover+🌿;+I+love+going+on+adventures+and+traveling;+)](https://git.io/typing-svg)
+
+
+
+[My Blog](https://sidequests.onrender.com/Blog/2024/taswakil/Readme/)
+
+
