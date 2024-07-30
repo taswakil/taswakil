@@ -1,9 +1,9 @@
-## .⋆❀:° Hi I'm Tasneem:) °:❀⋆.⁺‧
-
-## 𓍢ִ໋🫧֒✧⋆˚♡ Hi I'm Tasneem ♡˚⋆֒✧🫧𓍢ִ໋
 
 
-<img align="center" width="60" alt="GIF" src="https://www.icegif.com/wp-content/uploads/2022/10/icegif-1419.gif" />
+## 𓍢ִ໋🫧֒✧⋆˚♡ Hi I'm Tasneem :) ♡˚⋆֒✧🫧𓍢ִ໋
+
+
+<img align="center" width="100" alt="GIF" src="https://www.icegif.com/wp-content/uploads/2022/10/icegif-1419.gif" />
 
 <br>
 
